@@ -1,2 +1,2 @@
 # freshworks-simple-design-
-Where I have been done my design using Adobe Illustrator  
+Where I have been done my design using Adobe Illustrator and Canva  
